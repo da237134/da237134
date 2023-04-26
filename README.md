@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @da237134
-- 👀 I’m interested in nothing
+- 👀 I’m interested in gaming
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 3462462246
